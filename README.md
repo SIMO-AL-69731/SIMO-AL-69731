@@ -86,7 +86,7 @@ Cyber Defense
 
 ## 📫 Connect With Me
 
-💼 **LinkedIn:** Mohammed Alouch
+💼 **LinkedIn:** [Mohammed Alouch](https://www.linkedin.com/in/mohammed-alouch-4229a7320/)
 
 📧 **Email:** [mohammedalouch222@gmail.com](mailto:mohammedalouch222@gmail.com)
 
